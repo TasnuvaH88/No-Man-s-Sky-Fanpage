@@ -1,1 +1,1 @@
-# tasnuvah88.github.io
+Simple fan page for the game "No Man's Sky". Yes, I know, the game had many pitfalls, however, I do enjoy the concepts and the updates. Give them a break, all of their work was destroyed in a flood and Sony didn't give them the extensions they needed! :)
